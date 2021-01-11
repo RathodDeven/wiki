@@ -1,0 +1,1 @@
+ACER is a tech giant . Famous for making a quality and affordable product.NOpe..!

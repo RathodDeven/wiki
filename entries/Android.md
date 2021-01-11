@@ -1,0 +1,1 @@
+Android is a operating system developed by Google Inc.It had become most popular since the advant of mobile boom.
